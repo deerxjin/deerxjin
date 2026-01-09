@@ -1,5 +1,6 @@
-hihi! i made this myself so pls dont take! even tho its not that good ehe
 ![Untitled522_20260107224658](https://github.com/user-attachments/assets/31df9029-ffc4-4dde-a667-e8c775003dc8)
+
+hihi! i made this myself so pls dont take! even tho its not that good ehe
 
 # more info
 im in quite a few fandoms, mainly dandys world!
