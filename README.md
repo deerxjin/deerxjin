@@ -1,16 +1,15 @@
-## Hi there 👋
+hihi! i made this myself so pls dont take! even tho its not that good ehe
+![Untitled522_20260107224658](https://github.com/user-attachments/assets/31df9029-ffc4-4dde-a667-e8c775003dc8)
 
-<!--
-**deerxjin/deerxjin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# more info
+im in quite a few fandoms, mainly dandys world!
+if you dont know me please call me jin! friends call me jay though!
 
-Here are some ideas to get you started:
+# for ponytown
+im usually afk, offtab, or making ponies!
+i often have bad internet and will disconnect a lot
+i forget to come back ontab to make sure i dont get kicked for inactivity, but i eventually come back unless im asleep!
+c+h unless im w/ friends ^^
+it takes a minute for me to realize someone whispered me sometimes!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+okay enough yapping, baii! >3<
