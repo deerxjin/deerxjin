@@ -3,14 +3,21 @@
 hihi! i made this myself so pls dont take! even tho its not that good ehe
 
 # more info
-im in quite a few fandoms, mainly dandys world!
-if you dont know me please call me jin! friends call me jay though!
+~ im in quite a few fandoms, mainly dandys world!
+
+~ if you dont know me please call me jin! friends call me jay though!
 
 # for ponytown
 im usually afk, offtab, or making ponies!
-i often have bad internet and will disconnect a lot
-i forget to come back ontab to make sure i dont get kicked for inactivity, but i eventually come back unless im asleep!
-c+h unless im w/ friends ^^
-it takes a minute for me to realize someone whispered me sometimes!
+
+~ i often have bad internet and will disconnect a lot
+
+~ i forget to come back ontab to make sure i dont get kicked for inactivity, but i eventually come back unless im asleep!
+
+~ c+h unless im w/ friends ^^
+
+~ it takes a minute for me to realize someone whispered me sometimes!
 
 okay enough yapping, baii! >3<
+
+psst, make sure to check out @sincerelyjara , @callmeeme , and @TH333RE4LSH3LLYYY !! linked in social accounts!
