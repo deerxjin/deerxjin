@@ -20,5 +20,3 @@ im usually afk, offtab, or making ponies!
 ~ it takes a minute for me to realize someone whispered me sometimes!
 
 okay enough yapping, baii! >3<
-
-psst, make sure to check out @sincerelyjara , @callmeeme , and @TH333RE4LSH3LLYYY !! linked in social accounts!
