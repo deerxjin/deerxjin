@@ -1,4 +1,3 @@
-![under-construction-road-sign-Graphics-26776427-1](https://github.com/user-attachments/assets/26571b70-2712-4804-b23f-d460297d548c)
 
          ˚₊‧꒰ა ❀ ໒꒱ ‧₊ ᥴᥲᥣᥣ mᥱ ȷіᥒ! і ᥣ᥆᥎ᥱ sһᥲrks ᥲᥒძ ძᥱᥱr ·˚₊ ꒷ 🍰 . 𖦹˙ — 𐔌15!! 𐦯 𖦹 ⊹ ࣪ ˖ ────୨ৎ──── ⍴𝖿⍴ ᑲᥡ mᥱ!
 ![Untitled522_20260107224658](https://github.com/user-attachments/assets/31df9029-ffc4-4dde-a667-e8c775003dc8)
